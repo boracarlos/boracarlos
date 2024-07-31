@@ -10,7 +10,7 @@ meu nome é Carlos Eduardo
 
   ### Você entra em contato comigo 📫
 
-  ![] (<img src="https://media.tenor.com/mfdT9MRrFEMAAAAi/gojo-twerk-gojo-satoru.gif" alt="Gojo Twerk Gojo Satoru Sticker"/>![image](https://github.com/user-attachments/assets/1e4b3a46-b038-42bd-babe-ddc001053b7f)
-)
+  ![](https://media.tenor.com/mfdT9MRrFEMAAAAi/gojo-twerk-gojo-satoru.gif)
+
   
 
